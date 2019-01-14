@@ -1,6 +1,6 @@
 # 汤姆影院 最新地址发布 
 ## 导 航 永 久 域 名HttpS://DIAO.Se
-## ⭐️ 👉 地址一 ：https://www.48tom.com
+## ⭐️ 👉 地址一 ：https://www.tm946.com
 ## ⭐️ 👉 地址二 ：https://www.64tom.com
 ## ⭐️ 👉 地址三 ：https://www.63tom.com
 ## ⭐️ 👉 备用导航 ：https://998.Se
